@@ -1,1 +1,1 @@
-dimaxcoin
+
